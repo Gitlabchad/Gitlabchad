@@ -1,4 +1,4 @@
-![Chad GitHub Banner](https://media.licdn.com/dms/image/D5616AQGgVHn6fZeFFQ/profile-displaybackgroundimage-shrink_350_1400/0/1673892485014?e=1684368000&v=beta&t=A3vj-aw2ySqPh3QaTaCXIAx77Bicww4-JYhihj8f7Pc)
+![Chad GitHub Banner](https://www.google.com/url?sa=i&url=https%3A%2F%2Fstock.adobe.com%2Fsearch%3Fk%3D%2522coding%2Bbackground%2522&psig=AOvVaw2FsB-x9QY0ayg2maJzgwrG&ust=1708074320207000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCIjdpOv-rIQDFQAAAAAdAAAAABAR)
 
 ### Hi there 👋
 
